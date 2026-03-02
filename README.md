@@ -96,7 +96,7 @@ If this Privacy Policy changes, the updated version will be posted at this URL w
 
 If you have any questions about this Privacy Policy, please contact:
 
-**92Minash**
+**93Minash**
 Email: 93minash@gmail.com
 
 ---
